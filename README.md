@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LiamDarkside
-- 👀 I’m interested in flower aranging and diy
+- 👀 I’m interested in flower arranging and diy
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me 
